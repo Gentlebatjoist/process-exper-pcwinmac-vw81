@@ -1,4 +1,4 @@
-# 
+# Instantáneo Process Explorer preajustes para Mac OS | Seguro Process Explorer preajustes para PC Windows. Con integración en la nube y optimizador de servicios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
